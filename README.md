@@ -1,3 +1,3 @@
-👋 Hello there!!, I’m enaemon or ena. some of my friend including pookies call me as viona or vio. About me i can draw and animating but i rarely animating rn [sorry but im not posting it]. I'm interested in any pjsekai, GI, HSR, and other game topic i might know. I dont know how to use github so sorry if it look like a graveyard like my insta. If you know me from ponytown, please int! i am shy person[actually if we know well, that's a huge different]. Sorry if i'm not good at responding due my vocubulary kinda small..heh. please sign my guestbook:D
-.
-small joke: do you know why Akiyama Mizuki keep asking about mizuki's self? because mizuki's online name literally asking it. "am i a..." 😉
+1. sorry if i keep being silence. english not my native
+2. free c+h and int!
+3. an artist. i love art.
