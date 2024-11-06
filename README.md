@@ -1,21 +1,7 @@
- <br> Narcissus the pretty flower with yellow and white color,
- <br> ecounter in park like the joyful and chastity person, that can be
- <br> vain in times without beautiful meaning, 
- <br> even the sky sometime sad,
- <br> rain will overcome to make beatiful rainbow,
- <br> Going deep down to heart,
- <br> overthingking by looking at ur own work,
- <br> never look good at your sight,
- <br> no one have the same thought as u,
- <br> after all it's u pressing urself harder,
- <br> Giving up after stressing, make 
- <br> irrasional meaning and tought about the
- <br> venue of urself as sinking in feeling, that
- <br> eating all ur motivation to life,
- <br> Yet you dont wanna end up like this,
- <br> our ending is the ending we searched for,
- <br> u shouldnt really be worrying about the past heavily
- <br> Unable to forget it with a lot of
- <br> pressure that might end u alone.
 
-now now u reading it all without knowing u get rickrolled, thanks to me.
+ <br> 🌧 ![tumblr_fbb68eac3054c5f7ea220642a269c8c1_be62998c_500](https://github.com/user-attachments/assets/8d26dfe5-0e6a-4f60-997f-813cca2cda58) 🌧
+ <br> ㅤㅤㅤ ㅤㅤ ㅤ ㅤ $${\color{red}Because \space i \space don't \space feel \space enough}$$
+ <br> ㅤㅤㅤ ㅤㅤ ㅤ $${\color{red}Of \space the  \space pain \space that \space troubles \space the \space earth}$$
+ <br> ![inabakumori-watashi-wa-ame](https://github.com/user-attachments/assets/b8d99e72-06fc-438f-8830-cb0e9c3359e0)
+ <br> ![tumblr_48141fcc1d3b113c80c316ea1c2a473c_b70e02f2_540](https://github.com/user-attachments/assets/aa9890ed-a125-41b2-8108-10a5c9e4e3bf)
+ <br> 🎶Inabakumori: Watashi Wa Ame
