@@ -1,7 +1,20 @@
-
- <br> 🌧 ![tumblr_fbb68eac3054c5f7ea220642a269c8c1_be62998c_500](https://github.com/user-attachments/assets/8d26dfe5-0e6a-4f60-997f-813cca2cda58) 🌧
- <br> ㅤㅤㅤ ㅤㅤ ㅤ ㅤ $${\color{red}Because \space i \space don't \space feel \space enough}$$
- <br> ㅤㅤㅤ ㅤㅤ ㅤ $${\color{red}Of \space the  \space pain \space that \space troubles \space the \space earth}$$
- <br> ![inabakumori-watashi-wa-ame](https://github.com/user-attachments/assets/b8d99e72-06fc-438f-8830-cb0e9c3359e0)
- <br> ![tumblr_48141fcc1d3b113c80c316ea1c2a473c_b70e02f2_540](https://github.com/user-attachments/assets/aa9890ed-a125-41b2-8108-10a5c9e4e3bf)
- <br> 🎶Inabakumori: Watashi Wa Ame
+ <br> ![tumblr_e9f53e77f26a56668674462f431fa699_ef50012b_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/190b5dbf-44ad-4714-aae7-8d5e039673ed)![tumblr_e9f53e77f26a56668674462f431fa699_ef50012b_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/190b5dbf-44ad-4714-aae7-8d5e039673ed)
+ <br> ㅤㅤㅤ ㅤ ㅤ ㅤ ㅤ ![tumblr_inline_p7lbzd33Gx1qid2nw_75sq](https://github.com/user-attachments/assets/9d1fe2a8-d6b7-47b2-8196-1167ab345855)$${\color{red} \space Because \space i \space don't \space feel \space enough}$$![tumblr_fbfdb38354af6f49c64e16615079d9ca_c625c369_75-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/ef51df4f-5613-4def-9b92-58215e2e0f1f)
+ <br> ㅤㅤㅤ ㅤㅤ ㅤ ![tumblr_bcf9c4e7dbe356e33d11e6b905bf2617_fdc37eae_75](https://github.com/user-attachments/assets/040c2d15-3c1d-4720-a588-8d89827d28c6)
+$${\color{red}Of \space the  \space pain \space that \space troubles \space the \space earth}$$![tumblr_f03e6c0a90347ac19adf083024462ace_e3fbae73_75](https://github.com/user-attachments/assets/ee64063d-8b6d-41a1-9e78-7f63dc2ccb08)
+ <br>  ![inabakumori-watashi-wa-ame](https://github.com/user-attachments/assets/b8d99e72-06fc-438f-8830-cb0e9c3359e0)
+ <br> ![tumblr_e9f53e77f26a56668674462f431fa699_ef50012b_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/190b5dbf-44ad-4714-aae7-8d5e039673ed)![tumblr_e9f53e77f26a56668674462f431fa699_ef50012b_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/190b5dbf-44ad-4714-aae7-8d5e039673ed)
+ <br> ![tumblr_inline_p7lbzftHdi1qid2nw_75sq](https://github.com/user-attachments/assets/ec1cf508-6baf-4ec9-ba4e-55cbd5a3fe31)Inabakumori: Watashi Wa Ame![tumblr_f3cebdb2b4e6d0bee8601769823f4201_a17b06e5_75](https://github.com/user-attachments/assets/8cdc1e08-2f51-4a9c-9906-db519c706cf7)
+<br> <details><summary>Info ![tumblr_e672b91b60e49dcfe9779635838aad7f_6628d321_75](https://github.com/user-attachments/assets/b2c6f2cc-e11f-487a-83b7-a21db2e5c051)</summary>
+ <br> ㅤ![02bb7985](https://github.com/user-attachments/assets/9d8ba42e-d4f6-49a1-9ca2-3ec2bc13f48d) ![235aabb0_original](https://github.com/user-attachments/assets/9e5edd56-17e8-4152-b03c-a9bfcabffd53)![235aabb0_original](https://github.com/user-attachments/assets/9e5edd56-17e8-4152-b03c-a9bfcabffd53) ![02bb7985](https://github.com/user-attachments/assets/e83591f2-dc20-4e20-b7bc-3fae64fad497)
+ <br>
+ <br>  ㅤㅤㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤㅤ ㅤ ㅤ  ㅤㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤㅤ ![tumblr_5a6525bd7ba831485855c3920c9c66fb_4fb5e77b_75-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/7886263b-a3ae-4eef-987d-4b119aea84f2) $${\color{orange}VIO}$$ ![tumblr_71b383b15065979af57a6f7a4874dd09_32e963d1_75-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/9fad7061-1c87-40ee-9fae-d1bb89f55972)
+ <br>   ㅤㅤㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤㅤ ㅤ ㅤ  ㅤㅤㅤ ㅤ ㅤ ㅤ ㅤ ![tumblr_ec812456d7b493765ff6349149d54bf8_0899e457_75-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/ffe4aead-9d82-4d66-964a-2543eb8bff67)$${\color{lightblue}INTP}$$  ㅤ   ㅤ  ![c3398df7_original](https://github.com/user-attachments/assets/a31a5949-f65c-4898-bd09-8f0bf54aed91)![tumblr_lspoz6BMLo1qfel73540](https://github.com/user-attachments/assets/b393a523-f7f6-49c5-b47b-7ee20f868991)ㅤ ㅤ ㅤ $${\color{red} Taurus}$$![tumblr_2b43d1c73a14520eeceff02111462255_3cc1df62_75-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/e59b79d0-97f7-4fab-9db4-d497f7740768)
+ <br> 
+ <br>  ㅤㅤㅤㅤ  ㅤㅤㅤ◜◜Even so... With this ambiguous warmth, I find myself fascinated by those fleeting ideals.
+ <br>   ㅤㅤㅤ  ㅤㅤ ㅤㅤ  ㅤㅤㅤㅤㅤ  ㅤㅤㅤ  ㅤㅤEven though I still can't bring myself to open up my heart— …⏑How selfish I am.◝◝
+ <br>  ㅤㅤㅤ ㅤ ㅤ ㅤㅤ ![MIZUENA fanartt✨✨ them in the rain ☔^^](https://github.com/user-attachments/assets/9d4de5e4-da2f-4e2e-9ebf-28c174e8a522)
+ <br>   ㅤㅤㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤㅤ ㅤ ㅤ  ㅤㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤㅤ [Carrd](https://enanemon.carrd.co/)
+ <br> ![orangdevd](https://github.com/user-attachments/assets/ec8d4f64-0191-48bb-925d-a3489fa957aa)![orangdevd](https://github.com/user-attachments/assets/ec8d4f64-0191-48bb-925d-a3489fa957aa)</details>
+ <br>  ㅤ![ylowdevd1-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/0933f5f6-8251-4cbd-9e3c-523124f8fa68) ![ylowdevd1-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/4686c500-751d-41d8-be9f-01cf78bcfd63)
+ <br> ![catch fish](https://komarev.com/ghpvc/?username=enanemon)
