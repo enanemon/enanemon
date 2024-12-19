@@ -1,8 +1,6 @@
  <br> ![79766b3a](https://github.com/user-attachments/assets/1693858f-a91f-46c6-8714-fc04e189a5ba)
- <br> ㅤㅤㅤ ㅤ ㅤ ㅤ ㅤ ![tumblr_inline_p7lbzd33Gx1qid2nw_75sq](https://github.com/user-attachments/assets/9d1fe2a8-d6b7-47b2-8196-1167ab345855)$${\color{red} \space Because \space i \space don't \space feel \space enough}$$![tumblr_fbfdb38354af6f49c64e16615079d9ca_c625c369_75-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/ef51df4f-5613-4def-9b92-58215e2e0f1f)
- <br> ㅤㅤㅤ ㅤㅤ ㅤ ![tumblr_bcf9c4e7dbe356e33d11e6b905bf2617_fdc37eae_75](https://github.com/user-attachments/assets/040c2d15-3c1d-4720-a588-8d89827d28c6)
-$${\color{red}Of \space the  \space pain \space that \space troubles \space the \space earth}$$![tumblr_f03e6c0a90347ac19adf083024462ace_e3fbae73_75](https://github.com/user-attachments/assets/ee64063d-8b6d-41a1-9e78-7f63dc2ccb08)
- <br>  ![inabakumori-watashi-wa-ame](https://github.com/user-attachments/assets/b8d99e72-06fc-438f-8830-cb0e9c3359e0)
+ <br> ㅤㅤㅤ ㅤ ㅤ ㅤ ㅤ ![tumblr_f03e6c0a90347ac19adf083024462ace_e3fbae73_75](https://github.com/user-attachments/assets/ee64063d-8b6d-41a1-9e78-7f63dc2ccb08)$${\color{red} \space in \space my \space restless \space dream, \space i \space dance}$$![tumblr_f03e6c0a90347ac19adf083024462ace_e3fbae73_75](https://github.com/user-attachments/assets/ee64063d-8b6d-41a1-9e78-7f63dc2ccb08)
+ <br> ![JamesSunderlanddancing-ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/7a72875d-fd07-4bfe-a835-89de9b6bce73)
  <br> ![79766b3a](https://github.com/user-attachments/assets/1693858f-a91f-46c6-8714-fc04e189a5ba)
  <br> ![tumblr_inline_p7lbzftHdi1qid2nw_75sq](https://github.com/user-attachments/assets/ec1cf508-6baf-4ec9-ba4e-55cbd5a3fe31)Inabakumori: Watashi Wa Ame![tumblr_f3cebdb2b4e6d0bee8601769823f4201_a17b06e5_75](https://github.com/user-attachments/assets/8cdc1e08-2f51-4a9c-9906-db519c706cf7)
 <br> <details><summary>Info ![tumblr_e672b91b60e49dcfe9779635838aad7f_6628d321_75](https://github.com/user-attachments/assets/b2c6f2cc-e11f-487a-83b7-a21db2e5c051)</summary>
@@ -14,7 +12,7 @@ $${\color{red}Of \space the  \space pain \space that \space troubles \space the 
  <br>  ㅤㅤ◜◜Even so... With this ambiguous warmth, I find myself fascinated by those fleeting ideals.
  <br>   ㅤ  ㅤㅤ ㅤㅤ  ㅤㅤㅤㅤㅤ   Even though I still can't bring myself to open up my heart— …⏑How selfish I am.◝◝
  <br> ![02bb7985](https://github.com/user-attachments/assets/9d8ba42e-d4f6-49a1-9ca2-3ec2bc13f48d)⁖⁙—   ㅤㅤㅤ  ㅤㅤ ㅤㅤ  ㅤㅤㅤㅤㅤ      ㅤㅤㅤ  ㅤㅤ ㅤㅤ  ㅤㅤㅤㅤㅤ         ㅤ![a63a82f0](https://github.com/user-attachments/assets/412e9429-301c-402a-bdf6-a19df3e42281)
- <br> ![MIZUENA fanartt✨✨ them in the rain ☔^^](https://github.com/user-attachments/assets/9d4de5e4-da2f-4e2e-9ebf-28c174e8a522)
+ <br> ![Silent Hill 2 Remake](https://github.com/user-attachments/assets/a29e2410-5d7b-4126-b849-4b35d2b15daf)
  <br> link!![tumblr_fbfdb38354af6f49c64e16615079d9ca_c625c369_75-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/ef51df4f-5613-4def-9b92-58215e2e0f1f)
  <br> ![tumblr_5266118a20a656a77c6cec71886c2059_f541f51a_75-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/612d5c84-7fec-461e-babd-e8610f383b1c) ㅤㅤㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤㅤ ㅤ ㅤ  ㅤㅤㅤ ㅤ [Carrd](https://enanemon.carrd.co/)  ㅤ [rentry](https://rentry.co/enanemonnu)
  <br> ![tumblr_d2f161f1cb0fd3e756ca23eddfafe6d4_08dd75a7_1280](https://github.com/user-attachments/assets/1286b05b-972e-4fd1-8d01-e0236a5182e1)
