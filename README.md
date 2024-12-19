@@ -12,7 +12,7 @@
  <br>  ㅤㅤ◜◜Even so... With this ambiguous warmth, I find myself fascinated by those fleeting ideals.
  <br>   ㅤ  ㅤㅤ ㅤㅤ  ㅤㅤㅤㅤㅤ   Even though I still can't bring myself to open up my heart— …⏑How selfish I am.◝◝
  <br> ![02bb7985](https://github.com/user-attachments/assets/9d8ba42e-d4f6-49a1-9ca2-3ec2bc13f48d)⁖⁙—   ㅤㅤㅤ  ㅤㅤ ㅤㅤ  ㅤㅤㅤㅤㅤ      ㅤㅤㅤ  ㅤㅤ ㅤㅤ  ㅤㅤㅤㅤㅤ         ㅤ![a63a82f0](https://github.com/user-attachments/assets/412e9429-301c-402a-bdf6-a19df3e42281)
- <br> ![Silent Hill 2 Remake](https://github.com/user-attachments/assets/a29e2410-5d7b-4126-b849-4b35d2b15daf)
+ <br> ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ![Silent Hill 2 Remake](https://github.com/user-attachments/assets/a29e2410-5d7b-4126-b849-4b35d2b15daf)
  <br> link!![tumblr_fbfdb38354af6f49c64e16615079d9ca_c625c369_75-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/ef51df4f-5613-4def-9b92-58215e2e0f1f)
  <br> ![tumblr_5266118a20a656a77c6cec71886c2059_f541f51a_75-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/612d5c84-7fec-461e-babd-e8610f383b1c) ㅤㅤㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤㅤ ㅤ ㅤ  ㅤㅤㅤ ㅤ [Carrd](https://enanemon.carrd.co/)  ㅤ [rentry](https://rentry.co/enanemonnu)
  <br> ![tumblr_d2f161f1cb0fd3e756ca23eddfafe6d4_08dd75a7_1280](https://github.com/user-attachments/assets/1286b05b-972e-4fd1-8d01-e0236a5182e1)
