@@ -1,0 +1,48 @@
+This is how i code my README, if u want to know. This is just stimple code, u can copy them!! 
+(idk what description i want to put in here, but i'm so glad if u find this helpfu. THIS IS ONLY WORK FOR GITHUB REPOSITORY).
+DISCLAIMER: this i made bcause i want to show my friend how i do mine. 
+_____________________________________________________________________________________________________________________________________________________________________________________________________
+1. PROFILE VIEW
+example-> ![catch fish](your github link)          it will look like-> profile views | number
+
+2. SPACING LINE/WORD
+<br> what's up bro?           it will look like->   what's up bro?
+<br> i'm fin                                        i'm fin
+
+3. BASIC FONT 
+  3.1 Bold
+         **text** or __text__       it will look like->    text but bold
+  3.2 Italic
+         *text*   or _text_         it will look like->    text but italic
+  3.3 COLOR
+         $${\color{color} text}$$
+example-> $${\color{red} cute}$$    it will look like->    cute but pink font
+
+the color u can command -> red, blue, lightblue, green, yellow, orange, pink, white, black, purple, gold, teal, chocolate, cyan, lime, violet, mageta, silver, etc. (idk how much).
+ 3.4 COLORFUL FONT (WITH SPACE)
+       u can just type $${\color{color} text}$$ $${\color{color} text}$$
+example-> $${\color{golden} TSUKASA}$$ $${\color{orange} TENMA}$$           it will look like-> TSUKASA(golden) TENMA(orange)
+
+4. INSERT LINK
+    [text](link)
+example->  [TSUKASA](https://projectsekai.fandom.com/wiki/Tenma_Tsukasa)    it will look like-> TSUKASA (underlined font with link)
+
+u can insert any photo & gif by command ![text](link), to make it simple, just copy ur photo or gif then paste it. so simple, right?
+
+5. IMAGE SIZE
+    <img width="667" height="484" alt="image" src= LINK />
+
+6. SUMMARY
+    <details><summary>TEXT</summary>                           it will look like->    > TEXT (the rest is hidden)
+    text dummy lorem ipsum dolor amet miaw</details>
+
+
+
+
+
+
+______________________________________________________________________________________________________________________________________________________________________________________________________
+NOTE:
+For small icon i use on README belong to the owner, not me. So if u want me to take it down, please DM me or say it on ATABOOK.
+
+                                                                                                                                                                                                  -vio
