@@ -1,7 +1,7 @@
 <br> ![catch fish](https://komarev.com/ghpvc/?username=enanemon)
 <br> ![misaka-mikoto-misaka](https://github.com/user-attachments/assets/12925129-c423-4a4e-8678-8dd6421ed98c)
 <br> ![bf80c4a5_original](https://github.com/user-attachments/assets/94576b7a-6fd6-4304-b340-ee569b9e3462) 
-$${\color{orange}“Tch...}$$ $${\color{orange}what}$$ $${\color{orange}a}$$ $${\color{orange}pain.”}$$.
+$${\color{teal}“Tch...}$$ $${\color{orange}what}$$ $${\color{orange}a}$$ $${\color{orange}pain.”}$$.
 <br> <details><summary>Info ![tumblr_e672b91b60e49dcfe9779635838aad7f_6628d321_75](https://github.com/user-attachments/assets/b2c6f2cc-e11f-487a-83b7-a21db2e5c051)</summary>
  <br>![tumblr_b68358d845501d7d42ebe8548f8a935f_43f2ee78_1280](https://github.com/user-attachments/assets/fa7a9e6a-069b-4b3c-b221-931f18af58c5)
  <br>
@@ -24,7 +24,7 @@ $${\color{orange}“Tch...}$$ $${\color{orange}what}$$ $${\color{orange}a}$$ $${
  <br> $${\color{red}Funny}$$ $${\color{orange}Friend:}$$
  <br> [Idiot Dumpling](https://github.com/mizokie25) —⁖⁙— [Senyaa](https://github.com/CARBONARA24ji) —⁖⁙— [SkibidiSou](https://github.com/Jishoumushoku) —⁖⁙— [Reii!](https://github.com/r4n-reii) —⁖⁙— [Rynn](https://github.com/Rynn-Dayo) —⁖⁙— [Kadita;3](https://github.com/kadita-san) —⁖⁙— [Izhdak](https://github.com/izhdak) —⁖⁙— [Neru](https://github.com/neruus) —⁖⁙— [Uriel/Aiko](https://github.com/partywotomenaide) —⁖⁙— [ xXpinktomatoamia278bell+](https://github.com/VividOldTale) —⁖⁙— [AdawLovesSanwdwich](https://github.com/HOMESlCK)
  <br>
- <br> $${\color{lightblue}NON}$$ $${\color{yellow}Github:}$$
+ <br> $${\color{lightblue}NON}$$ $${\color{gold}Github:}$$
  <br> Audeznuts, Reiya/JAMAL, Jelijelo, FOG (IDK UR GITHUB), LiangTEH, KrepesBakar
  <br>
  <br> ![tumblr_lsw9h1xtab1qcfn0j540](https://github.com/user-attachments/assets/e289969c-19df-41e3-b67f-43bbf89ead39)
