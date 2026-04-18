@@ -17,6 +17,7 @@ $${\color{teal}“Tch...}$$ $${\color{orange}what}$$ $${\color{orange}a}$$ $${\c
  <br>  ㅤ ㅤ ㅤ ㅤ  ㅤㅤㅤ ㅤ ㅤ  ㅤㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ
  <br> ◜   ⁖⁙ <img width="667" height="484" alt="image" src="https://github.com/user-attachments/assets/25038aca-81ed-4b6b-9e68-e13e17132c80" />
  <br> link!![tumblr_fbfdb38354af6f49c64e16615079d9ca_c625c369_75-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/ef51df4f-5613-4def-9b92-58215e2e0f1f)
+ <br> 
  <br> ![tumblr_5266118a20a656a77c6cec71886c2059_f541f51a_75-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/612d5c84-7fec-461e-babd-e8610f383b1c) ㅤㅤㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤㅤ ㅤ ㅤ  ㅤㅤㅤㅤㅤ ㅤ [Carrd](https://enanemon.carrd.co/)   —⁖⁙—ㅤ [rentry](https://rentry.co/enanemonnu)
  <br> ![tumblr_d2f161f1cb0fd3e756ca23eddfafe6d4_08dd75a7_1280](https://github.com/user-attachments/assets/1286b05b-972e-4fd1-8d01-e0236a5182e1)
  <br> ![tumblr_9fd58a223da5e52b91d47881cf65c269_8d02d53e_1280](https://github.com/user-attachments/assets/09c7e825-dd9e-490b-8b36-a85fff99aeb1)</details>
@@ -25,7 +26,7 @@ $${\color{teal}“Tch...}$$ $${\color{orange}what}$$ $${\color{orange}a}$$ $${\c
  <br> [Idiot Dumpling](https://github.com/mizokie25) —⁖⁙— [Senyaa](https://github.com/CARBONARA24ji) —⁖⁙— [SkibidiSou](https://github.com/Jishoumushoku) —⁖⁙— [Reii!](https://github.com/r4n-reii) —⁖⁙— [Rynn](https://github.com/Rynn-Dayo) —⁖⁙— [Kadita;3](https://github.com/kadita-san) —⁖⁙— [Izhdak](https://github.com/izhdak) —⁖⁙— [Neru](https://github.com/neruus) —⁖⁙— [Uriel/Aiko](https://github.com/partywotomenaide) —⁖⁙— [ xXpinktomatoamia278bell+](https://github.com/VividOldTale) —⁖⁙— [AdawLovesSanwdwich](https://github.com/HOMESlCK)
  <br>
  <br> $${\color{lightblue}NON}$$ $${\color{gold}Github:}$$
- <br> Audeznuts, Reiya/JAMAL, Jelijelo, FOG (IDK UR GITHUB), LiangTEH, KrepesBakar
+ <br> Audeznuts, Reiya/JAMAL, Jelijelo, FOG/EviLessBean, LiangTEH, KrepesBakar. why did you all have no github.. (≖᷆︵︣≖)👎
  <br>
  <br> ![tumblr_lsw9h1xtab1qcfn0j540](https://github.com/user-attachments/assets/e289969c-19df-41e3-b67f-43bbf89ead39)
- <br> That's all, they're precious to me. Thank You. </detail> 
+ <br> That's all, they're precious to me. Thank You. ᕙ(`▿´)ᕗ</detail> 
