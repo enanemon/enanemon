@@ -41,3 +41,4 @@ $${\color{teal}“Tch...}$$ $${\color{orange}what}$$ $${\color{orange}a}$$ $${\c
  <br> ![tumblr_9fd58a223da5e52b91d47881cf65c269_8d02d53e_1280](https://github.com/user-attachments/assets/09c7e825-dd9e-490b-8b36-a85fff99aeb1)
  <br> witch house.gif by mike inel.
  <br> That's all, they're precious to me. Thank You. ᕙ(`▿´)ᕗ</detail> 
+ 
