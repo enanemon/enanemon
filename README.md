@@ -30,11 +30,12 @@ $${\color{teal}“Tch...}$$ $${\color{orange}what}$$ $${\color{orange}a}$$ $${\c
  <br> ![tumblr_b68358d845501d7d42ebe8548f8a935f_43f2ee78_1280](https://github.com/user-attachments/assets/fa7a9e6a-069b-4b3c-b221-931f18af58c5)
  <br> $${\color{red}Funny}$$ $${\color{orange}Friend:}$$
  <br> [Idiot Dumpling](https://github.com/mizokie25) —⁖⁙— [Senyaa](https://github.com/CARBONARA24ji) —⁖⁙— [SkibidiSou](https://github.com/Jishoumushoku) —⁖⁙— [Reii!](https://github.com/r4n-reii) —⁖⁙— [Rynn](https://github.com/Rynn-Dayo) —⁖⁙— [Kadita;3](https://github.com/kadita-san) —⁖⁙— 
- <br> [Izhdak](https://github.com/izhdak) —⁖⁙— [Neru](https://github.com/neruus) —⁖⁙— [Uriel/Aiko](https://github.com/partywotomenaide) —⁖⁙— [ xXpinktomatoamia278bell+](https://github.com/VividOldTale) —⁖⁙— [AdawLovesSanwdwich](https://github.com/HOMESlCK)
+ <br> [Izhdak](https://github.com/izhdak) —⁖⁙— [Neru](https://github.com/neruus) —⁖⁙— [Uriel/Aiko](https://github.com/partywotomenaide) —⁖⁙— [ xXpinktomatoamia278bell+](https://github.com/VividOldTale) —⁖⁙— [AdawLovesSanwdwich](https://github.com/HOMESlCK) 
+ <br> [veeeee](https://github.com/ksnginene) —⁖⁙— [skibdi#1](https://github.com/Ka3yakssrz) —⁖⁙— [foggLebanon](https://github.com/SnezhnayanQueen) —⁖⁙— [NeoNEnE](https://github.com/souIlove)
  <br> 
  <br> $${\color{lightblue}NON}$$ $${\color{gold}Github:}$$
- <br> $${\color{red}Audeznuts,}$$ $${\color{orange}Reiya/JAMAL,}$$ $${\color{yellow}FOG/EviLessBean,}$$ $${\color{green}LiangTEH,}$$ $${\color{blue}KrepesBakar,}$$ $${\color{violet}Fai.}$$
- <br> " why did you all have no github.. " (≖᷆︵︣≖)👎
+ <br> $${\color{red}Audeznuts,}$$ $${\color{orange}Reiya/JAMAL,}$$ $${\color{yellow}jenap/JENNONG,}$$ $${\color{green}LiangTEH,}$$ $${\color{blue}KrepesBakar,}$$ $${\color{indigo}lilin}$$ $${\color{violet}Fai.}$$ 
+ <br> " idk if there's more. sorry if i forgot to tag you guys, ily. " (≖᷆︵︣≖)👎
  <br>
  <br> ![tumblr_lsw9h1xtab1qcfn0j540](https://github.com/user-attachments/assets/e289969c-19df-41e3-b67f-43bbf89ead39)
  <br> ![tumblr_d2f161f1cb0fd3e756ca23eddfafe6d4_08dd75a7_1280](https://github.com/user-attachments/assets/1286b05b-972e-4fd1-8d01-e0236a5182e1)
